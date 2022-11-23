@@ -30,12 +30,25 @@ Here are some of my favorites:
  
  	![pancit](https://panlasangpinoy.com/wp-content/uploads/2019/03/Pancit-Recipe-1-500x485.jpg)
   
-  The Filipino Dish, Pancit is a must and it is 
+  The Filipino Dish, Pancit is a must-have for Filipino parties or celebrations.
   
  -***GINILING***
  
  	![giniling](https://panlasangpinoy.com/wp-content/uploads/2015/09/Pork-Giniling-Kaldereta-Recipe-500x437.jpg)
   
- -***BISTEK***
+  Pork Giniling is a pork dish that makes use of ground pork as the primary ingredient. Ground pork is stewed in tomato sauce and water to bring out the taste while vegetables such as carrots and potatoes (some also like this with raisins and green peas) are added for additional flavor and nutrition.
+  
+ -***BISTEK*** or ***BEEF*** ***STEAK***
  
  	![bistek](https://panlasangpinoy.com/wp-content/uploads/2018/11/Bistek-Tagalog-Panlasang-Pinoy-500x485.jpg)
+  
+  Bistek Tagalog is a type of Filipino beef stew. This is also known as Beefsteak to some people. It is comprised of thin slices of beef and a generous amount of onions. These are stewed in a soy sauce and lemon juice mixture until the beef gets very tender. It is best enjoyed with warm rice. 
+  
+---
+
+Ltuong-Bahay Filipino Food is truly amazing and delicious. Not only does it give you good and delicious food, but you are also assured of the quality and the freshness of it.
+
+---
+  
+  
+  
