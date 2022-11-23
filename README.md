@@ -44,7 +44,7 @@ Here are some of my favorites:
  
  	![bistek](https://panlasangpinoy.com/wp-content/uploads/2018/11/Bistek-Tagalog-Panlasang-Pinoy-500x485.jpg)
   
-  *Bistek Tagalog is a type of Filipino beef stew. This is also known as Beefsteak to some people. It is comprised of thin slices of beef and a generous amount of onions. These are stewed in a soy sauce and lemon juice mixture until the beef gets very tender. It is best enjoyed with warm rice. *
+  *Bistek Tagalog is a type of Filipino beef stew. This is also known as Beefsteak to some people. It is comprised of thin slices of beef and a generous amount of onions. These are stewed in a soy sauce and lemon juice mixture until the beef gets very tender. It is best enjoyed with warm rice.*
   
 ---
 
