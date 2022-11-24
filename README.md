@@ -2,7 +2,7 @@
 
 
 
-**Hi! My name is Euan Castaneda. You can call me **Euan**. I am a student of ADNU, a swimmer, and the middle child among my siblings.**
+**Hi! My name is Euan Castaneda. You can call me *Euan*. I am a student of ADNU, a swimmer, and the middle child among my siblings.**
 
 
 **Ever since I was a child I always liked food. Especially Filipino food cooked at home, also known as 'lutong bahay.'**
